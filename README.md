@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **Cloud infrastructure projects**
 
-- 📫 How to reach me **mariamvelasquez27@gmail.com**
+- 📫 How to reach me: **mariamvelasquez27@gmail.com**
 
 <h3 align="left">Connect with me:</h3> **mariamvelasquez27@gmail.com**
 <p align="left">
